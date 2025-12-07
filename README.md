@@ -1,1 +1,1 @@
-# tubes basdat belum selesai anj
+# tubes basdat sudah selesai anj
